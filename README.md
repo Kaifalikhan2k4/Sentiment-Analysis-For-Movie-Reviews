@@ -1,1 +1,1 @@
-This My Aids Project
+This My AIDS Project
